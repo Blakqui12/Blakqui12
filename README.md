@@ -1,0 +1,4 @@
+- 👋 hola soy  @Blakqui12
+- 👀 Me interesa mucho lo que es el diseño de moda 
+- 🌱 Actualmente estoy aprendiendo nuevos temas como programacion wed 
+- 💞️ me gusta todo tipo de musica y mas si son romanticas 
